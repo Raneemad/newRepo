@@ -1,0 +1,1 @@
+Fresh Graduate from the college of Computer science and information, Princess Noura bint Abdulrahman University,Riyadh, Saudi Arabia. I have a passion towards Event management , Web Developer , Cyber security. 
